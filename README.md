@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @StriveHeisenberg
 - 👀 I’m interested in programming.
 - 🌱 I’m currently learning everying.
-- 💞️ QQ: 1730764704
+- 💞️ E-mail: 1730764704@qq.com
 - 📫 Wechat: cingwyd
 
 <!---
